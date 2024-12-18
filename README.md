@@ -1,0 +1,7 @@
+- 👋 Hi, I’m FEINVR!
+- 👀 I’m interested in Gorilla Tag
+- 🌱 I’m currently learning NOTHING
+- 💞️ I’m looking to collaborate on a gorilla tag mod memu
+- 📫 How to reach me Discord:feinvr, Gmail:kasonreese573@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have 114 subs on yt https://www.youtube.com/@FEINVR13
